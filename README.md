@@ -1,2 +1,0 @@
-# Mitharshan-Seneca
-Seneca
